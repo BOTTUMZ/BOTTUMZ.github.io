@@ -1,1 +1,0 @@
-# BOTTUMZ.github.io
